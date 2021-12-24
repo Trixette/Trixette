@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Trixette
+- 👀 I’m interested in Madness combat, FNF, Pokemon and Pico's School.
+- 🌱 I’m currently learning how to make UTAU voice banks and covers! 
+- 💞️ I’m looking for help on a Friday Night Funkin' mod, I also don't mind collabarations with covers!
+- 📫 How to reach me: my discord is Catboy#6324
